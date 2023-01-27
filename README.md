@@ -1,2 +1,0 @@
-# Rashabadran.github.io
-LifeTravel
